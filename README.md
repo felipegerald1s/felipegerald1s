@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do felipegerald1s 🧑🏻‍💻
+## Bem-vindo(a) ao perfil do Felipe Geradis 🧑🏻‍💻
 
  <div>
    <a href="https://github.com/felipegerald1s">
